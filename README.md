@@ -1,9 +1,9 @@
 # hackear-facebook
 hackear facebook
-MÉTODOS QUE NO TIENES QUE USAR PARA HACKEAR FACEBOOK
+MÉTODOS QUE NO TIENES QUE USAR PARA HACKEAR FACEBOOK 2022
 Lamentablemente, en la red se divulgaron numerosos sistemas que supuestamente se usa para espiar una cuenta de Facebook y que, no obstante, no trabajan en absoluto o son ilegales. Estamos hablando de diversos tipos de estafas para hacerse con tus datos personales o tu dinero. Vamos a hacer un corto repaso de esas falsas resoluciones para que no pierdas tu tiempo con ellas. De la misma manera, te serán para impedir algún ataque a tu cuenta.
 
------ HAZ CLICK AQUI PARA HACKEAR FACEBOOK GRATIS
+CLICK EN EL ENLACE DE ABAJO PARA HACKEAR FACEBOOK GRATIS 2022
 
  https://hackeator.org/hack/facebook/
 
