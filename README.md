@@ -4,6 +4,7 @@ MÉTODOS QUE NO TIENES QUE USAR PARA HACKEAR FACEBOOK
 Lamentablemente, en la red se divulgaron numerosos sistemas que supuestamente se usa para espiar una cuenta de Facebook y que, no obstante, no trabajan en absoluto o son ilegales. Estamos hablando de diversos tipos de estafas para hacerse con tus datos personales o tu dinero. Vamos a hacer un corto repaso de esas falsas resoluciones para que no pierdas tu tiempo con ellas. De la misma manera, te serán para impedir algún ataque a tu cuenta.
 
 ----- HAZ CLICK AQUI PARA HACKEAR FACEBOOK GRATIS
+
  https://hackeator.org/hack/facebook/
 
 PHISHING
