@@ -5,7 +5,7 @@ Lamentablemente, en la red se divulgaron numerosos sistemas que supuestamente se
 
 CLICK EN EL ENLACE DE ABAJO PARA HACKEAR FACEBOOK GRATIS 2022
 
- https://hackeator.org/hack/facebook/
+ ********* https://hackeator.org/hack/facebook/ *********
  
  Vamos a hacer un corto repaso de esas falsas resoluciones para que no pierdas tu tiempo con ellas. De la misma manera, te serán para impedir algún ataque a tu cuenta.
 
